@@ -1,3 +1,3 @@
 # fhikarzul.github.io
 
-Lihat portofolio sata di https://fhikarzul.github.io/
+Lihat portofolio saya di https://fhikarzul.github.io/
